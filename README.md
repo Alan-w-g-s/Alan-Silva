@@ -38,8 +38,8 @@ Valorizo princípios como **inclusão, sustentabilidade e inovação**, acredita
 ---
 
 ## 📫 Contato
-- Email: [seuemail@email.com](mailto:seuemail@email.com)
-- LinkedIn: [linkedin.com/in/seuperfil](https://linkedin.com/in/seuperfil)
+- Email: [oalanwagner@gmail.com](mailto:seuemail@email.com)
+- LinkedIn: [https://www.linkedin.com/in/alan-silva-a62959161/](https://linkedin.com/in/seuperfil)
 
 ---
 
